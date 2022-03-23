@@ -1,4 +1,4 @@
-TALLIA YANUSHKEVICH ##
+## NATALLIA YANUSHKEVICH ##
 
 ### Contacts: ###
 E-mail: <natalay1308@gmail.com>       
